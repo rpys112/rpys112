@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data, Games, Hiking
 - 🌱 I’m currently learning to around with large datasets
 - 💞️ I’m looking to collaborate on any sort or visualization projects  
-- 📫 How to reach me sing1020@umn.edu  
+- 📫 How to reach me rudrasingh112@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
